@@ -1,0 +1,2 @@
+Burger King (w kanadyjskiej prowincji Quebec, znany jako Roi des Hambourgeois[1]) – sieć restauracji szybkiej obsługi typu fast food[2] specjalizująca się głównie w burgerach[3], frytkach, zimnych napojach. Najbardziej znanym produktem jest burger Whopper, który stał się jednym z symboli popkultury.
+
